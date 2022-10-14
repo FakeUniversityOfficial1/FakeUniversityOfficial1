@@ -1,4 +1,4 @@
-- 👋 Hi, thisis the officail account of Fake University @FakeUniversityOfficial1
+- 👋 Hi, this is the officail account of Fake University @FakeUniversityOfficial1
 - 👀 We are interested in Doing Real Engineering. #FAKE
 - 🌱 We are currently exploring all opprtunities to realize our dreams.
 - 💞️ We don't mind collaborating at any level for anything.
